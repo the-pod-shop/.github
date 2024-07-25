@@ -1,1 +1,0 @@
-# The Pod Shop Organisation
